@@ -1,0 +1,1 @@
+'veter v haru ya huyaru v dota'
